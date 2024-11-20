@@ -50,3 +50,8 @@ img result BaiTap TH_N2 Ngay 6/11
 
 ![image](https://github.com/user-attachments/assets/5eb4958c-fd19-42b7-989a-0aa72ec1d115)
 
+img result Bai Kiem tra Ngay 20/11
+
+![MobileShopImg](https://github.com/user-attachments/assets/b6b2d082-b575-4961-abdc-4bacf3d85984)
+
+
